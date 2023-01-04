@@ -7,8 +7,8 @@
 * 2 lb spinach, chopped
 * 1/2 lb feta cheese, crumbled
 * 3 eggs, whisked
-* salt
-* pepper
+* 1 tsp salt
+* 1 tsp pepper
 [Crust]
 * 3 stick butter
 * 18 sheet filo dough
